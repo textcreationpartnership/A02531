@@ -36,7 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Contemplations, the sixth volume. By Ios. Hall D. of D.Contemplations upon the principall passages o
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
